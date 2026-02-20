@@ -1,1 +1,0 @@
-this folder contain brainSTORMING,EMPATHY MAP,PROBLEM STATEMENT FILES
